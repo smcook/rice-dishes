@@ -19,9 +19,7 @@
 - Step 1
     
     Heat oven to 425. Put the oil into a sauté pan set over medium heat. When the oil shimmers, add the garlic cloves, shallots and lemon zest, and cook, tossing occasionally, for about 15 minutes, until the garlic is golden brown and soft. Add the sprigs of curry leaves, and cook for approximately 2 minutes more, or until the leaves are starting to crisp.
-    Pour the garlic and shallots into a large ovenproof baking dish, approximately 10 by 14 inches, and spread the rice over the vegetables in an even layer. Sprinkle 2 teaspoons of salt over the rice, and then pour 3 1/2 cups of boiling water over the rice. Cover the dish tightly with aluminum foil, and place in the oven for 30 minutes or so, until all the water has been absorbed and the rice is light, fluffy and starting to turn crisp around the edges.
-    Remove the dish from the oven, uncover and drizzle the saffron and its soaking water over the dish. Re-cover the dish with aluminum foil, and allow it to sit on the stovetop for another 5 or 10 minutes, then serve.
-
+    
 - Step 2
     
     Pour the garlic and shallots into a large ovenproof baking dish, approximately 10 by 14 inches, and spread the rice over the vegetables in an even layer. Sprinkle 2 teaspoons of salt over the rice, and then pour 3 1/2 cups of boiling water over the rice. Cover the dish tightly with aluminum foil, and place in the oven for 30 minutes or so, until all the water has been absorbed and the rice is light, fluffy and starting to turn crisp around the edges.
